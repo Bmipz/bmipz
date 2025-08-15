@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Bmipz 😁
+## Bem-vindo(a) ao perfil do Jean Alano 😁
 
  <div>
    <a href="https://github.com/Bmipz">
